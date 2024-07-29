@@ -2,7 +2,7 @@
 - 👀 I’m interested in Financial institutions supervision
 - 🌱 I’m currently learning software engineering...
 - 💞️ I’m looking to collaborate on cybersecurity 
-- 📫 How to reach me ntjalebohang@yahoo.com
+- 📫 How to reach me ntjalebohang@yahoo.com, mmoletsane@centralbank.org.ls
 - 😄 Pronouns: Shengineer
 - ⚡ Fun fact: Currently the only girl in a class of 6 boyz
 
